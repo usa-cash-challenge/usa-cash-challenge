@@ -19,5 +19,3 @@ Get more money-making opportunities to your email
 
 [privacy policy](https://insurancereviews911.com/privacy-policy/) [about us](https://insurancereviews911.com/about-us/)
 
-github:
-  is_project_page: false

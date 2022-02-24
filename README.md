@@ -9,4 +9,3 @@ It’s an easy opportunity for anyone to earn some money just submitting your Em
 
 100% satisfaction guarantee Secure Giveaway.
 
-![image](https://user-images.githubusercontent.com/100324592/155437515-1a516ab5-bcec-4647-8349-f9158e233b97.png)

@@ -17,3 +17,4 @@ Get more money-making opportunities to your email
 
 *The amount of money you can earn depends on the number of survey panels you register with, and how many surveys you complete. As an example, an average survey payout is from $5 to $750. By taking 5 surveys per day, 5 days a week, you could earn $500/month.
 
+[privacy policy](https://insurancereviews911.com/privacy-policy/) [about us](https://insurancereviews911.com/about-us/)

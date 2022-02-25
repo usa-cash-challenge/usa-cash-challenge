@@ -19,3 +19,5 @@ Get more money-making opportunities to your email
 
 [privacy policy](https://insurancereviews911.com/privacy-policy/) [about us](https://insurancereviews911.com/about-us/)
 
+<script async src="https://pagead2.googlesyndication.com/pagead/js/adsbygoogle.js?client=ca-pub-1484049352124144"
+     crossorigin="anonymous"></script>
